@@ -1,5 +1,4 @@
-# Nayira-Sri
-About me
+# About me
 
 # Hi, I'm Nayira 👋
 
